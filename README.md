@@ -1,0 +1,1 @@
+Thinking, training data, knowledge.
